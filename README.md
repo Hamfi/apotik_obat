@@ -1,1 +1,0 @@
-# apotik_obat
